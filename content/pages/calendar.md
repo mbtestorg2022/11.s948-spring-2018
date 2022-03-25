@@ -79,7 +79,7 @@ Week 2: On Blind Spots 
 
 George Saunders, [“In Defense of Darkness” (YouTube)](https://www.youtube.com/watch?v=1X5u8Li3Qew)
 
-Annie Dillard, ![This resource may not render correctly in a screen reader.](/images/inacessible.gif)[“Seeing” (PDF)](https://aimeeknight.files.wordpress.com/2016/01/seeing.pdf)
+Annie Dillard, [“Seeing” (PDF)](https://aimeeknight.files.wordpress.com/2016/01/seeing.pdf)
 
 Excerpts from Teju Cole’s [“Blind Spot”](https://www.newyorker.com/culture/photo-booth/second-sight)
 
